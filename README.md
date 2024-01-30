@@ -1,1 +1,1 @@
-Sync!
+Sync! In lecture
